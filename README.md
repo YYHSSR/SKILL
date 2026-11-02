@@ -1,1 +1,1 @@
-﻿# SKILL
+# SKILL
